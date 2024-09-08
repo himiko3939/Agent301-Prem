@@ -1,5 +1,6 @@
 This Bot is Premium for SALE !!
 
+contact me [Here](https://t.me/Nezuaoi)
 
 ## Features
 - Auto Spin
